@@ -1,5 +1,6 @@
 Tôi thích giúp đỡ mọi người nhưng không có nghĩa là tôi sẽ dùng não cho họ 😄
-![Screenshot](https://imgupload.pl/images/2020/12/10/ezgif.com-gif-maker.gif)  
+<!-- display screenshot -->
+![Screenshot](/assets/images/screenshots/Screenshot_1.jpg)
 
 - 👋 Hi, I’m @vnLoader
 - 👀 I’m interested in ...
