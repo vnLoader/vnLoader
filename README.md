@@ -15,3 +15,4 @@ Giữ gìn sức khỏe và gặp lại bạn trên Nhóm Kín của tôi✌️
 Telegrarm: ***https://t.me/vnLoader*** tôi chỉ sử dụng 1 tài khoản
 
 ***Tôi CHỈ giao dịch trên Telegram. Tôi sẽ không thêm bạn vào Discord, Skype hoặc bất kỳ ứng dụng nào khác. Hãy cẩn thận với những kẻ lừa đảo!***
+🏴‍☠️🔞☢️☣️☠️☣️☢️🔞🏴‍☠️
