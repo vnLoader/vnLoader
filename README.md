@@ -12,7 +12,6 @@ Nếu bạn đang cần tìm 1 người Code, Bảo Mật,Mua Bán USDT, Bán c�
 
 Giữ gìn sức khỏe và gặp lại bạn trên Nhóm Kín của tôi✌️
 
-<!---
-vnLoader/vnLoader is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+Telegrarm: ***https://t.me/vnLoader*** tôi chỉ sử dụng 1 tài khoản
+
+***Tôi CHỈ giao dịch trên Telegram. Tôi sẽ không thêm bạn vào Discord, Skype hoặc bất kỳ ứng dụng nào khác. Hãy cẩn thận với những kẻ lừa đảo!***
